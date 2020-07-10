@@ -1,1 +1,0 @@
-# gdusoftwareclub.github.io
